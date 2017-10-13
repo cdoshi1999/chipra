@@ -1,2 +1,0 @@
-# chipra
-REAL ONE
